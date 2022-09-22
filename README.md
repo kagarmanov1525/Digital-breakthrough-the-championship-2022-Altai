@@ -6,6 +6,8 @@
 
 ![Скриншот 22-09-2022 23 24 01](https://user-images.githubusercontent.com/86234925/191823076-bd5cdc3c-9637-43da-bb91-52e9977d419f.png)
 
+![Слайд1](https://user-images.githubusercontent.com/86234925/191825378-5d2c6737-23d2-4c7b-9cc4-9a4294f4fa91.JPG)
+
 ![Слайд2](https://user-images.githubusercontent.com/86234925/191824072-66633f2a-85b4-4a49-bcab-691b1dcc3ac5.JPG)
 
 ![Слайд3](https://user-images.githubusercontent.com/86234925/191824077-5184f702-d038-41ce-8f23-24898d53b781.JPG)
